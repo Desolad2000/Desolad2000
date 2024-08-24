@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Desolad2000
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning beginner
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me by mail alaladeadesola@gmail.com
+- 😄 Pronouns: good
+- ⚡ Fun fact: lovely
+- 
